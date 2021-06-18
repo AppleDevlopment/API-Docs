@@ -2,4 +2,4 @@
 
 
 ## Information:
-- [Website](https://discord.gg)
+- [Website](hnot up yet)
