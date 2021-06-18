@@ -2,4 +2,4 @@
 
 
 ## Information:
-- [Website](https://not up yet)
+- [Website](https://notupyet)
